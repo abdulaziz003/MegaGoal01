@@ -34,7 +34,7 @@ To make the learning of English fun, motivating, and success-oriented by way of 
       - Rising and falling intonation.
       
 * ### WEEK03
-  * #### Big Changes  _(pages 6-19)_
+  * #### Big Changes  _(pages 6-11)_
     - [ ] Listen and Discuss   _(page 6)_
       - **Discuss** past world events and present effcts.
     - [ ] Pair Work   _(page 7)_
@@ -53,15 +53,18 @@ To make the learning of English fun, motivating, and success-oriented by way of 
       - Ask your friends Questions.
     - [ ] Conversation _(page 11)_
       - **Role-play** a conversation like the one one the page with a partner. Give info about your family.
+* ### WEEK04
+  * #### Big Changes  _(pages 12-19)_
     - [ ] Reading _(pages 12-13)_
       - READING STRATEGY Predicting.
     - [ ] Writing _(pages 14-15)_
       - Writting Conrner: Use capital letters.
+      - Write an essay about an important change in your country.
     - [ ] Form, Meaning and function _(pages 16-17)_
       - Simple past and past progressive **Two events**
       - Past progressive + when + simple past **longer, continuous action interrupted by a shorter one.**
     - [ ] Project _(page 18)_
-      - make an interview with a person who lived in another country.
+      - Interview and write about people who have moved from one country to another.
     - [ ] Self Reflection _(page 19)_
       - Students should do it for more feed back, fill it online.Here
     
